@@ -1,2 +1,2 @@
-# udhaiyakumarpalraj.github.io
+# udhaiyakumar.github.io
 MY RESUME
